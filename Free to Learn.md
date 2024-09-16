@@ -29,6 +29,26 @@ Schools we more worried about reading the wrong stuff, by directing can help to 
 
 If the goal were to encourage critical thinking and diversity of thought one would never model a school system the way modern schools are organized that explicitly indoctrinate and foster obedience. 
 
+Home directed self directed education 
+
+Can make friends easily, able to look adults in the eye
+
+Optimal context for self directed education 
+
+
+Agile learning centres
+
+Need to trust
+
+Need time to be bored, time to go down various roads, learn the tools (like computers)
+
+Mixed age group is critical and a variety of adults
+
+Age mixing is the key, instinct to play is mixed age - provides the opportunity to be boosted up to the younger child and the opportunity to cultivate leadership in the older children 
+
+
+
+
 
 
 ### Resources 
