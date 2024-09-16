@@ -46,7 +46,7 @@ Mixed age group is critical and a variety of adults
 
 Age mixing is the key, instinct to play is mixed age - provides the opportunity to be boosted up to the younger child and the opportunity to cultivate leadership in the older children 
 
-
+Fosters thinking about not just self but of the community- creates a sense of responsibility to the community 
 
 
 
