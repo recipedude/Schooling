@@ -6,6 +6,8 @@
 
 [Peter Gray: Self Directed Education. What Is It, How Does It Work?](https://youtu.be/DYYbYyGbEcc) *1h42m* really gets going 43m in on modern education origins, discipline, indoctrination 
 
+[The decline of play | Peter Gray | TEDxNavesink](https://youtu.be/Bg-GEzM7iTk?si=Ey0rLrVJY5QRrhaX)
+
 
 
 ### Books referenced
