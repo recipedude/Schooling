@@ -1,8 +1,8 @@
 # Schooling
 
-[Free to Learn]()
+[Free to Learn](Free to Learn.md)
 
-[Screen time]()
+[Screen time](Screen Time.md)
 
 
 
