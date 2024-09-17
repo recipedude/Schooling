@@ -1,5 +1,13 @@
 # Free to Learn
 
+Peter Gray is a research professor of evolutionary psychology & neuroscience at Boston University.
+
+## Key Concepts
+- Self-chosen and self-directed play (structured play excluded)
+- Mixed age children, from 4 years old through adults
+- School has become and abnormal setting for children (momentum of school expansion is very successful, school teaches you need more school as a business model, at kids expense)
+- Most important education occurs outside of school
+
 ## Videos
 
 [Freedom to Learn - Peter Gray](https://youtu.be/-OMYesA1nQo) *10 min*
@@ -8,12 +16,23 @@
 
 [The decline of play | Peter Gray | TEDxNavesink](https://youtu.be/Bg-GEzM7iTk?si=Ey0rLrVJY5QRrhaX) *16m*
 
+[The End of Play: Why Kids Need Unstructured Time](https://youtu.be/zB5_KAOjboc?si=rIARkzax032YaNfm)
+
+[Why School Sucks](https://www.youtube.com/watch?v=vxUcwfSQ1as) 
+
+> It's clear that critical thinking drilled out of students entering college (today).
+
+[The Hub Presents: Dr. Peter Gray on "pushing" children to do things](https://www.youtube.com/watch?v=dFBtx9yPv_A) 
+
+> One realm where parents don't push their kids enough, is helping out around the house, overprotection from doing real work is a big loss
+
+
 
 
 ### Books referenced
 
-The Continuum Concept
-The Old Way
+The Continuum Concept (was purchased already... need to find the book)
+The Old Way: A Story of the First People
 
 
 ### Concepts
@@ -54,6 +73,11 @@ If childhood isn’t free, that’s a crime - the right to choose your own path 
 
 Modern schools deny the human rights of the child 
 
+### Stats
+
+Eightfold increase in suspected major depression in kids (14 to 18) since late 1930's, corresponding to structure schooling, coupled with an increase of anxiety that doesn't coorelate with economic cycles, or war, divorce rates, or other influences
+
+20% of boys diagnosed with ADHD
 
 ### Resources 
 
