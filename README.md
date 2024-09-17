@@ -1,8 +1,8 @@
 # Schooling
 
-[Free to Learn](Free to Learn.md)
+[Free to Learn](Free%20to%20Learn.md) *Peter Gray*
 
-[Screen time](Screen Time.md)
+[Screen time](Screen%20Time.md)
 
 
 
