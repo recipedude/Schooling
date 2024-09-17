@@ -48,7 +48,9 @@ Age mixing is the key, instinct to play is mixed age - provides the opportunity 
 
 Fosters thinking about not just self but of the community- creates a sense of responsibility to the community 
 
+If childhood isn’t free, that’s a crime - the right to choose your own path to life, liberty and happiness 
 
+Modern schools deny the human rights of the child 
 
 
 ### Resources 
