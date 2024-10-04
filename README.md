@@ -1,4 +1,4 @@
-**Note: this is a rough work in progress that has yet to be fully realized**
+*Note: this is a rough work in progress that has yet to be fully realized*
 
 # Schooling
 
