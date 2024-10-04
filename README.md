@@ -1,3 +1,5 @@
+**Note: this is a rough work in progress that has yet to be fully realized**
+
 # Schooling
 
 [Free to Learn](Free%20to%20Learn.md) *Peter Gray*
