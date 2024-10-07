@@ -1,12 +1,29 @@
-# Free to Learn
+# [Free to Learn](https://amzn.to/4eSrMZ1)
 
 Peter Gray is a research professor of evolutionary psychology & neuroscience at Boston University.
 
+In Free to Learn, developmental psychologist Peter Gray argues that in order to foster children who will thrive in today's constantly changing world, we must entrust them to steer their own learning and development. 
+
+[Free to Learn](https://amzn.to/4eSrMZ1)
+
+
 ## Key Concepts
+
+*Notes from listenting to audio book*
+
 - Self-chosen and self-directed play (structured play excluded)
 - Mixed age children, from 4 years old through adults
 - School has become and abnormal setting for children (momentum of school expansion is very successful, school teaches you need more school as a business model, at kids expense)
 - Most important education occurs outside of school
+- Around the age of 4, children have developed judgement and can be free to run with other kids
+- Childhood doesn’t end until they have their own kids
+- Today in modern education we don’t beat children like in the biblical old school systems, we often drug them, or shame them
+- If the goal were to encourage critical thinking and diversity of thought one would never model a school system the way modern schools are organized that explicitly indoctrinate and foster obedience
+- If childhood isn’t free, that’s a crime - the right to choose your own path to life, liberty and happiness
+- Modern schools deny the human rights of the child 
+- Today we deprive the child of peers and instead try to become the peer, which doesn't take the place of a true peer but diminishes the value as the parent is an authority figure - not a peer
+- Age mixing is the key, instinct to play is mixed age - provides the opportunity to be boosted up to the younger child and the opportunity to cultivate leadership in the older children
+- if a kid is bored, let them be bored - wait them out until they start exploring on their own
 
 ## Videos
 
@@ -28,27 +45,20 @@ Peter Gray is a research professor of evolutionary psychology & neuroscience at 
 
 
 
-
 ### Books referenced
 
-The Continuum Concept (was purchased already... need to find the book)
-The Old Way: A Story of the First People
+- The Continuum Concept (was purchased already... need to find the book)
+- The Old Way: A Story of the First People
 
 
 ### Concepts
 
-Age of 4 children has developed judgement. Free to run with other kids.
 
-Childhood doesn’t end until they have their own kids.
-
-Spoiling, letting children explore/be free spoils kids? Nope, opposite. Bright, well adjusted 
-
-
-Today in modern education we don’t beat children like in the biblical old school systems, we drug them, or shame them
+Argument that allowing kids to be free is Spoiling, letting children explore/be free spoils kids? Nope, opposite. Bright, well adjusted 
 
 Schools we more worried about reading the wrong stuff, by directing can help to control thought.
 
-If the goal were to encourage critical thinking and diversity of thought one would never model a school system the way modern schools are organized that explicitly indoctrinate and foster obedience. 
+. 
 
 Home directed self directed education 
 
@@ -65,13 +75,11 @@ Need time to be bored, time to go down various roads, learn the tools (like comp
 
 Mixed age group is critical and a variety of adults
 
-Age mixing is the key, instinct to play is mixed age - provides the opportunity to be boosted up to the younger child and the opportunity to cultivate leadership in the older children 
+
 
 Fosters thinking about not just self but of the community- creates a sense of responsibility to the community 
 
-If childhood isn’t free, that’s a crime - the right to choose your own path to life, liberty and happiness 
 
-Modern schools deny the human rights of the child 
 
 ### Stats
 
