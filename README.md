@@ -4,7 +4,7 @@
 
 [Free to Learn](Free%20to%20Learn.md) *Peter Gray*
 
-[Curriculum & Resources][Curriculum%20Resources.md]
+[Curriculum & Resources](Curriculum%20Resources.md)
 
 [Screen time](Screen%20Time.md)
 
